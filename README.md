@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @salmaniqbalmasood
+- 👀 I’m interested in Programming
+- 🌱 I’m currently stuyding BS in Software Engineering at Virtual University of Pakistan
+- 💞️ I’m looking to collaborate on ...
+- 📫 Mobile Contact: +92304 5637374
